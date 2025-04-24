@@ -1,5 +1,5 @@
 
-[![2flzyx9.webp](https://iili.io/2flzyx9.webp)](https://www.linkedin.com/in/vilander-costa/)
+[![3M1gnvp.png](https://iili.io/3M1gnvp.png)](https://linktr.ee/vilander.costa)
 
 # *SOBRE MIM...*
 
